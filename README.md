@@ -170,6 +170,10 @@ San Francisco, California **USA**
 5-7 April, 2017  
 Salt Lake City, Utah **USA**
 
+[**WAQ 2017**]https://webaquebec.org/
+4-6 April, 2017 
+Montreal, Quebec **Canada**
+
 [**Active Ingredients**](https://activeingredients.info/)  
 28 April, 2017  
 San Francisco, California **USA**
